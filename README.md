@@ -13,6 +13,10 @@ Tác giả:				Lớp:
     Trần Hoàng Minh Khang	7B4
     Hoàng Minh Tuấn		7B4
 
+![IMG_20250529_091230~2](https://github.com/user-attachments/assets/dfbbe722-cefe-4d91-abbd-396b5598a951)
+
+
+
 <iframe width="560" height="315" src="https://www.youtube.com/embed/1BTI75vWhXs?si=J1TWdYrqFug-OO5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 A.	Ý TƯỞNG:
