@@ -15,7 +15,7 @@ Tác giả:				Lớp:
 
 ![IMG_20250529_091230~2](https://github.com/user-attachments/assets/dfbbe722-cefe-4d91-abbd-396b5598a951)
 
-[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/1BTI75vWhXs/0.jpg)](https://www.youtube.com/watch?v=J1TWdYrqFug)
+[![IMAGE ALT TEXT HERE](https://img.youtube.com/vi/1BTI75vWhXs/0.jpg)](https://www.youtube.com/watch?v=1BTI75vWhXs)
 
 A.	Ý TƯỞNG:
 Nhiều lần cả nhà đi biển, ba em giới thiệu đập dâng và giải thích công dụng của nó. Anh em chúng em rất hứng thú, mong muốn được thấy nước sông dâng lên sẽ rất đẹp. Chờ đợi cũng lâu nhưng chưa thấy đập dâng hoạt động, thành phố Quảng Ngãi vào mùa nắng trơ trọi lòng sông, vậy là 3 anh em chúng em rủ nhau thực hiện dự án vận hành nó (đập dâng sông Trà Khúc)
