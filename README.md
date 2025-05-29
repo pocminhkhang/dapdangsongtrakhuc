@@ -13,6 +13,8 @@ Tác giả:				Lớp:
     Trần Hoàng Minh Khang	7B4
     Hoàng Minh Tuấn		7B4
 
+https://youtu.be/1BTI75vWhXs?si=413De4a8WSqYGjSD
+
 A.	Ý TƯỞNG:
 Nhiều lần cả nhà đi biển, ba em giới thiệu đập dâng và giải thích công dụng của nó. Anh em chúng em rất hứng thú, mong muốn được thấy nước sông dâng lên sẽ rất đẹp. Chờ đợi cũng lâu nhưng chưa thấy đập dâng hoạt động, thành phố Quảng Ngãi vào mùa nắng trơ trọi lòng sông, vậy là 3 anh em chúng em rủ nhau thực hiện dự án vận hành nó (đập dâng sông Trà Khúc)
 Ban đầu chúng em chỉ nghĩ đến việc vận hành ngăn nước, xả nước sao cho nước dâng lên – hạ xuống như mong muốn là được. Tuy nhiên trong quá trình tìm hiểu thì mọi chuyện không đơn giản như vậy, trong các video em tìm hiểu được trên mạng về các con đập lớn, người ta đã phải làm cầu cá nhằm đảm bảo tính tự nhiên của hệ sinh thái dòng sông, do vậy đập dâng mô hình phải có cầu cá cho cá bơi ngược dòng về thượng nguồn, đập dâng phải vận hành hoàn toàn tự động theo mực nước thượng nguồn, điều tiết dòng chảy xuống hạ lưu làm sao để không bị nước biển xâm nhập, …
