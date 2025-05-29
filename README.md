@@ -13,7 +13,7 @@ Tác giả:				Lớp:
     Trần Hoàng Minh Khang	7B4
     Hoàng Minh Tuấn		7B4
 
-https://youtu.be/1BTI75vWhXs?si=413De4a8WSqYGjSD
+<iframe width="560" height="315" src="https://www.youtube.com/embed/1BTI75vWhXs?si=J1TWdYrqFug-OO5A" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" referrerpolicy="strict-origin-when-cross-origin" allowfullscreen></iframe>
 
 A.	Ý TƯỞNG:
 Nhiều lần cả nhà đi biển, ba em giới thiệu đập dâng và giải thích công dụng của nó. Anh em chúng em rất hứng thú, mong muốn được thấy nước sông dâng lên sẽ rất đẹp. Chờ đợi cũng lâu nhưng chưa thấy đập dâng hoạt động, thành phố Quảng Ngãi vào mùa nắng trơ trọi lòng sông, vậy là 3 anh em chúng em rủ nhau thực hiện dự án vận hành nó (đập dâng sông Trà Khúc)
